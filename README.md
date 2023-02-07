@@ -1,3 +1,3 @@
 # Templates-Documents
-Templates - Multiple Documents<br />
+Templates - Multiple/Various Digital Documents<br />
 - Privacy Policy - Website
